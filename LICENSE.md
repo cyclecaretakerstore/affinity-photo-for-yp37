@@ -1,4 +1,4 @@
-
+Affinity Photo for macOS premium Preset - collaboration and blend modes is the best Affinity Photo for macOS preset, featuring collaboration and blend modes. Safe, efficient, and
 
 
 
